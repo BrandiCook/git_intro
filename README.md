@@ -1,3 +1,2 @@
-Eric Ianni
-I dont have a fave # >:(
+Brandi Cook
 # git_intro
